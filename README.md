@@ -1,1 +1,1 @@
-# Portfolio of photography 
+# Portfolio for photography 
